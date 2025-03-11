@@ -15,7 +15,7 @@ Halo! 👋 Selamat datang di **profil resmi GitHub T6 Slot** – platform terkem
 - 🛠 **Fitur Inovatif** berbasis teknologi canggih.
 - 📲 **Dapat Dimainkan di Berbagai Perangkat** – kapan saja, di mana saja.
 
-🔗 Kunjungi: [T6 Slot - Situs Resmi](https://t6slot.info/)
+🔗 Kunjungi: [T6 Slot - Situs Resmi](https://adaama.net/)
 
 ---
 
