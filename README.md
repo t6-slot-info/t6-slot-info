@@ -1,6 +1,6 @@
 # 🎰 Selamat Datang di T6 Slot - Destinasi Gaming Terbaik!
 
-[![Website](https://img.shields.io/badge/Kunjungi-T6Slot.info-blue?style=flat-square)](https://t6slot.info/)
+[![Website](https://img.shields.io/badge/Kunjungi-T6Slot-blue?style=flat-square)](https://adaama.net/)
 
 Halo! 👋 Selamat datang di **profil resmi GitHub T6 Slot** – platform terkemuka yang menyediakan pengalaman **bermain slot online terbaik**. Di sini, Anda akan menemukan berbagai proyek, repositori, dan kolaborasi terkait **pengembangan game, otomatisasi, serta teknologi hiburan online**.
 
